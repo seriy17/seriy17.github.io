@@ -1,1 +1,0 @@
-# seriy17.github.io
